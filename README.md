@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python , C++ , PHP
 - 💞️ I’m looking to collaborate on Umm right now nothin coz I dont know anything
 - 📫 How to reach me -- through my email - naman2308sharma@gmail.com
-- 😄 Pronouns: He/ male / man 
+- 😄 Pronouns: Walmart Bag
 - ⚡ Fun fact: I dont known any fun fact right now bruhhh !!
 
 <!---
